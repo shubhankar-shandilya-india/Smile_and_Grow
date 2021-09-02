@@ -5,5 +5,5 @@ This website will help depressed and anxious students by making them joyous and 
 ![Web capture_2-9-2021_21157_](https://user-images.githubusercontent.com/78155393/131742595-d47a4b8c-b2ab-453b-bbb5-d7d10e355c2c.jpeg)
 ![Web capture_2-9-2021_21237_](https://user-images.githubusercontent.com/78155393/131742616-c1a14066-f0ab-44c0-be7b-06d69e48f0d7.jpeg)
 ![Web capture_2-9-2021_21251_](https://user-images.githubusercontent.com/78155393/131742625-bdd7adc5-656c-442d-9050-23432240dd4b.jpeg)
-![Web capture_2-9-2021_21220_](https://user-images.githubusercontent.com/78155393/131742658-9a50607f-dbd8-48b1-9ac9-1513e6c78ec3.jpeg)![Web capture_2-9-2021_21344_](https://user-images.githubusercontent.com/78155393/131742687-04264dbc-2c9e-4d1a-9eb3-5c8fa46fa32b.jpeg)
+![Web capture_2-9-2021_21220_](https://user-images.githubusercontent.com/78155393/131742658-9a50607f-dbd8-48b1-9ac9-1513e6c78ec3.jpeg)
 
